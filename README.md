@@ -19,8 +19,8 @@ GDG Tashkent and IT-Park Uzbekistan are committed to build and maintain a great 
 If that’s not attractive enough, we also have some sweet, sweet prizes!
 
 ## **Prizes** 🏆
-1st Place: Amazfit GTS Smart Watch\
-2nd Place: Google Home Mini 1st Generation\
+1st Place: Amazfit GTS Smart Watch
+2nd Place: Google Home Mini 1st Generation
 3rd Place: Xiaomi Mi Band 5
 
 ## Judging
